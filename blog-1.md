@@ -1,0 +1,3 @@
+**Pasión**, algo que todos queremos sentir, experimentar, respirar; la pasión es lo que nos lleva a cumplir nuestro propósito en la vida, se manifiesta cuando tienes esas imágenes y pensamientos en tu mente que no puedes detener. Mientras caminaba por las calles analizaba todos los edificios y espacios a mi alrededor y pensaba como podría potencializarlos, transformarlos o si no existían, crearlos.
+
+Así fue como me introduje en el mundo de la arquitectura, a la vez siempre estuve muy interesado en temas de economía y finanzas, y por eso decidí orientar mi vida hacia el desarrollo de proyectos inmobiliarios con un énfasis en la buena arquitectura y utilizando la tecnología como un vehículo a nuestro beneficio, entonces, nace Terrenos Urbanos.
